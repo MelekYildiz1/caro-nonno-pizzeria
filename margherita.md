@@ -1,4 +1,5 @@
-# Pizza Margherita
+Luigina's tip:
+Gebruik extra verse basilicum.# Pizza Margherita
 
 Ingrediënten:
 - Tomatensaus
@@ -14,4 +15,7 @@ Gebruik verse basilicum.
 
 Maria's tip:
 Gebruik San Marzano tomaten.
-Luigina's tip: Gebruik extra verse basilicum.
+Tip:
+Gebruik basilicum en olijfolie.
+Luigina's tip:
+Gebruik extra verse basilicum.
