@@ -14,3 +14,4 @@ Gebruik verse basilicum.
 
 Maria's tip:
 Gebruik San Marzano tomaten.
+Luigina's tip: Gebruik extra verse basilicum.
