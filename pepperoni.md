@@ -7,3 +7,4 @@ Ingrediënten:
 
 Bereiding:
 Bak tot de rand knapperig is.
+Tip: Voeg extra chilivlokken toe voor meer pit.
