@@ -11,3 +11,6 @@ Extra tip:
 Gebruik buffelmozzarella voor extra smaak.
 Tip:
 Gebruik verse basilicum.
+
+Maria's tip:
+Gebruik San Marzano tomaten.
