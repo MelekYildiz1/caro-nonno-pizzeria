@@ -1,0 +1,10 @@
+# Pizza Quattro Formaggi
+
+Ingrediënten:
+- Mozzarella
+- Gorgonzola
+- Parmezaan
+- Fontina
+
+Bereiding:
+Bak tot de kazen goed gesmolten zijn.
