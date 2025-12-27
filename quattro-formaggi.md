@@ -8,3 +8,5 @@ Ingrediënten:
 
 Bereiding:
 Bak tot de kazen goed gesmolten zijn.
+Tip:
+Serveer met versgemalen zwarte peper.
