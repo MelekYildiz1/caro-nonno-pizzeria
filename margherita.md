@@ -7,3 +7,5 @@ Ingrediënten:
 
 Bereiding:
 Bak de pizza in een hete oven tot de kaas gesmolten is.
+Extra tip:
+Gebruik buffelmozzarella voor extra smaak.
