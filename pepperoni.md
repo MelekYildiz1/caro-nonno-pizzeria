@@ -11,3 +11,4 @@ Tip: Voeg extra chilivlokken toe voor meer pit.
 Maria's tip:
 Gebruik pittige pepperoni.
 Luigina's tip: Bak iets langer voor extra krokantheid.
+Extra: Chilisaus naar smaak.
