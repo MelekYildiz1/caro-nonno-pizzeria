@@ -5,6 +5,7 @@ Ingrediënten:
 - Tomatensaus
 - Mozzarella
 - Basilicum
+-uien
 
 Bereiding:
 Bak de pizza in een hete oven tot de kaas gesmolten is.
